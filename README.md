@@ -1,2 +1,2 @@
 # immeow
-DATE ME TO MARRT
+DATE ME TO MARRY
